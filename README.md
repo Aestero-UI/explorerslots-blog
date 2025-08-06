@@ -1,6 +1,6 @@
-# ExplorerSlots Blog
+# Yono Store Blog
 
-Welcome to the **ExplorerSlots Blog**, where we share verified insights and trusted resources to help users explore **safe, legal Teen Patti and slot gaming platforms** online.
+Welcome to the **Yono Store Blog**, where we share verified insights and trusted resources to help users explore **safe, legal Teen Patti and slot gaming platforms** online.
 
 Whether you're new to card games or just looking for secure platforms that actually respect your time and data, this blog covers:
 
@@ -13,7 +13,7 @@ Whether you're new to card games or just looking for secure platforms that actua
 
 ## 🌐 Explore More
 
-👉 [Visit ExplorerSlots](https://www.explorerslots.com) to discover legal and secure Teen Patti & slot platforms — no signup or downloads required.
+👉 [Visit Yono Store](https://www.yonostore.app/) to discover legal and secure Teen Patti & slot platforms — no signup or downloads required.
 
 ---
 
